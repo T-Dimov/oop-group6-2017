@@ -7,11 +7,11 @@
 
 #####_nikikg95@gmail.com_
 
-#####_nikolakg@uni-sofia.bg
+#####nikolakg@uni-sofia.bg
 
 ###Тодор Димов 
 
 ###Служебна групова поща
 
-#####_kn62015@gmail.com _
+#####kn62015@gmail.com _
 
